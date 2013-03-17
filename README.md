@@ -1,4 +1,5 @@
-The Character of a Trimmer ==========================
+The Character of a Trimmer
+==========================
 
 by George Savile, Marquess of Halifax (fl 1680s)
 
